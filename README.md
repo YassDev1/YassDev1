@@ -1,7 +1,11 @@
 - 👋 Hi, I’m @Yas-dev
-I am an apps and web and games dev .
-I learn hacking too ,
+I am an apps, web and games dev .
+I am learning about hacking too ,
 
 
-why am i here *-*
+
+so ...
+
+why am i here, and why you still reading
+              \(*-*)/
 forget all what i said and go :)
